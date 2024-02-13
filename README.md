@@ -1,1 +1,1 @@
-# shibamugi.github.io-SQR
+# SQR
